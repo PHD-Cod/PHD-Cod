@@ -1,0 +1,5 @@
+- 👋 Hi, I’m Pedro H. Doratiotto
+- 👀 I’m interested in games and sports.
+- 🌱 I’m currently learning for acpunture.
+- 📫 I'm living in Franco da Rocha.
+- 😄 Pronouns: PHD
